@@ -45,7 +45,7 @@ Available for short-term contracts — particularly:
 - Full-stack web apps from scratch
 - College capstone / final year projects
 
-📬 Reach me: [your-email@gmail.com] · [LinkedIn URL]
+📬 Reach me: [nitishrsm@gmail.com] · [https://www.linkedin.com/in/nitish-upadhyay-696978177/]
 
 ---
 
